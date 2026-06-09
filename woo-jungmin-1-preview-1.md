@@ -1,7 +1,7 @@
 ## ‘베토벤 교향곡 x 두대의 피아노’ (2026년 4월 4일 예술의 전당)
-#### [L. v. Beethoven, Symphony No.1 in C Major, Op.21](https://youtu.be/ztEs0SDoHjA?si=PCkNjKcozOT4PSrV)
-#### [L. v. Beethoven, Symphony No.4 in B-flat Major, Op.60](https://youtu.be/fI01rYemoAE?si=pVZ_dyEupc63FTFZ)
-#### [L. v. Beethoven, Symphony No.3 in E-flat Major, Op.55 ‘Eroica’](https://youtu.be/fhHcty9OM-0?si=4DgXiD91h0vBDCtv)
+### [L. v. Beethoven, Symphony No.1 in C Major, Op.21](https://youtu.be/ztEs0SDoHjA?si=PCkNjKcozOT4PSrV)
+### [L. v. Beethoven, Symphony No.4 in B-flat Major, Op.60](https://youtu.be/fI01rYemoAE?si=pVZ_dyEupc63FTFZ)
+### [L. v. Beethoven, Symphony No.3 in E-flat Major, Op.55 ‘Eroica’](https://youtu.be/fhHcty9OM-0?si=4DgXiD91h0vBDCtv)
 
 ### 단 9개의 교향곡, 베토벤의 내적 필연성과 예술적 완결성
 
